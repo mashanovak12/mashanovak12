@@ -1,5 +1,5 @@
 mlk- 👋 Hi, I’m @mashanovak12
-- 👀 I’m interested in ...nb
+- 👀 I’m interestedxcv in ...nbdasd
 - 🌱 I’m currently learning ...asdcxz
 - 💞️ I’m looking tosd collaborate on ...
 - 📫 How to reach me ...
