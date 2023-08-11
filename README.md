@@ -1,7 +1,7 @@
 mlk- 👋 Hi, I’m @mashanovak12
 - 👀 I’m interestedxcv in .gd.sd.nbdasd
 - 🌱 I’m currently learning ...asdcxz
-- 💞️ I’m looking tosd collaborate on ...
+- 💞️ I’m looking tosddsa colsdalaborate on ...
 - 📫 How to reach me ...gdf
 khladczxcggdfdfggfd
 <!---cxzgfd
