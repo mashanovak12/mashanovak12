@@ -1,6 +1,6 @@
-mlk- 👋 Hi, I’m @mashanovak12
+mlk- 👋 Hi, I’m @mashanovak12чяс
 - 👀 I’m interestedxcv in .gd.sd.nbdasd
-- 🌱 I’m currently learning ...asdcxz
+- 🌱 I’m currently learning ...asdsadcxz
 - 💞️ I’m looking tosddsa colsdalabofsdfrate on ...
 - 📫 How to reach me ...gdfівав
 khladczxcggdfdfggfdfshtexcv
