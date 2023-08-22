@@ -1,5 +1,5 @@
-mlk- 👋 Hi, I’m @mashanovak12чяс
-- 👀 I’m interestedxcv in .gd.sd.nbdasd
+vbnmmlk- 👋 Hi, I’m @mashanovak12чяс
+- 👀 I’m interestedxcv in .gd.sd.nbdasdvbnm
 - 🌱 I’m currently learning ...asdsadcxz
 - 💞️ I’m looking vcx...gdfівав
 khladczxcggdfdfggfdfshtexcv
