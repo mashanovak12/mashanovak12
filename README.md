@@ -1,6 +1,6 @@
 vbnmmlk- 👋 Hi, I’m @mashanovak12чяс
-- 👀 I’m interestedxcv in .gd.sd.nbdasdvbnm
-- 🌱 I’m currently learning ...asdsadcxz
+- 👀 I’m interestedxcv in .gd.sd.nbdaмчсsdм
+- 🌱 I’m currently learning ...asdfdsadcxz
 - 💞️ I’m looking vcx...gdfівав
 khladczxcggdfdfggfdfshtexcv
 <!---cxzgfd
