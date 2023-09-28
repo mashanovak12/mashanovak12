@@ -1,4 +1,4 @@
-vbnmmlk- 👋 Hi, I’m @mashanovak12чясasdsa
+vbnmmlk- 👋 Hi, I’m @mashanovak12івафівачясasdsa
 - 👀 I’m interestedxcv in .gd.sd.nbxcvxcvdaмчсsdм
 - 🌱 I’m currentldy learning .sdf..asdfdassaddsadcxz
 - 💞️ I’m looking vcx...gdfівавcxvxcvxcv
