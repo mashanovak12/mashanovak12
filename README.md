@@ -1,5 +1,5 @@
 vbnmmlk- 👋 Hi, I’m @mashanovak12івафівачясasdsa
-- 👀 I’m interestedxcv in asdcb.gd.sd.nbxcvxcvdaмчсsмячсмячсмм
+- 👀 I’m interestedxcv ij,n asdcb.gd.sd.nbxcvxcvdaмчсsмячсмячсмм
 - 🌱 I’m currentldy learning .sdf..asdfdassaddsadcxz
 - 💞️ I’m looking vcx...gdfівавcxvxcvxcv
 khladczxcggdfdfggfdfshtexcvds
