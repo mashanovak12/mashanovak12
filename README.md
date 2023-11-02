@@ -1,7 +1,7 @@
 vbnmmlk- 👋 Hi,nnb I’m @mashanovak12івафівачясadssdsa
 - 👀 I’m interestedxcv ij,n hklasdcb.gd.sd.nbxcvxcvdaмчсsмячсмяuvlkgчсмsdasdмhgj
 - 🌱 I’m currentldy leardcning cvb.sdf..asdfdassaddsadcxz
-- 💞️ I’m looking vcx...gdfівавcxvxcvxcvвіамсчимяч
+- 💞️ I’m looking vcx...gdfівавcxvxcvxcvxzcвіамсчимяч
 khladczxcggdfdfggfdfshtexcvdsmn
 <!---cxzgfdfsdvfvcxv
 mashanovak12/mashanovak12 is a ✨ special cv✨ repository because its `README.md` (this file) appears on your GitHub profile.
