@@ -1,4 +1,4 @@
-vbnmmlk- 👋 Hi,nnb I’m jhk@mashasadscxvcxvnovak12івафівачясadssdsa
+vbnmmlk- 👋 Hi,nnb I’m sddjhk@mashasadscxvcxvnovak12івафівачясadssdsa
 - 👀 I’m interestedxcv ij,n лпроygkh
 - 🌱 I’m currentldy leardcning cvb.sdf..asdfdassaddsadcxzasdsa
 - 💞️ I’m looking vcx...gdfівавcxvxcvxфівcvxzcвіамсчимяч
