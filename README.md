@@ -4,6 +4,6 @@ vbnmmlk- 👋 Hi,nnb I’m sddjhk@mashasadscxvcxvnovak12asdssagfgdfgdgfdgsdsadas
 - 💞️ I’m looking vcx...gdfівавcxvxcvxфівcvxzcвіамсчимяч
 khladczxcggdfdfggfdfshtexcvdsmn
 <!---cxzgfdfsdvfvcxv
-mashanovak12/mashanovak12 is a ✨ special cv✨ repository because its `README.md` (this fijhjhle) appears on your GitHub profile.
-You can click the Praseview link to take a look at your chancxzcges.xzcxzczxc
+mashanovak12/mashanovak12 is a ✨ special cv✨ repository because its `RеукеукеEADME.md` (this fijhjhle) appears on your GitHub profile.іпіввіаів
+You can click the Praseview link to take a look at your chancxzcges.xzcxzczxcte
 --->x
