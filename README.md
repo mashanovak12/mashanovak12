@@ -1,5 +1,5 @@
 vbnmmlk- 👋 Hi,nnb I’m sddjhk@mashasadscxvcxvnovak12asdssagfgdfgdgfdgsdsadasdфвфівfdsfsdfasdasddsfkfkj
-- 👀 I’m interestedxcv фівіівафівij,adczxsdfcn fsdfdsfsdfdgdfgfdsfsdfsd,hjghh,jkadasdііфвсчяasdasdasфівіфвccфsdadasdіkhkgлasdzxcxzcпрggjvоyіфчясвавачяgkdsasadhjjkhjhsaxsadsadaasdsadzsdxczczxваівмсчмfbcvbcv
+- 👀 I’m interestedxcv фівіівафівij,adczxsdfcn fsdfdsfsdfdgdfgfdsfsdfsd,hjghh,jkadasdііфвсчяasdasdasфівіфвccфsdadasdіkhkgлasdzфівіфвіфвxcxzcпрggjvоyіфчясвавачяgkdsasadhjjkhjhsaxsadsadaasdsadzsdxczczxваівмсчмfbcvbcv
 - 🌱 I’m currenорлtldy leardcning zxcxzcsdsdcvb.sdf..asdfdassaddsadcxzasdasfsdfsdfdsadsa
 - 💞️ I’m looking vcx...gdfівавcxvxcvxфівcvxzcвіамсчимяч
 khladczxcggdfdfggfdfshtexcvdsmndfsdfsd
